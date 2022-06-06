@@ -1,3 +1,3 @@
 # Olá, sou  Patricia-Maia
 
-Sempre estudante e Apaixona por tecnologia!
+Estudante e Apaixona por tecnologia!
